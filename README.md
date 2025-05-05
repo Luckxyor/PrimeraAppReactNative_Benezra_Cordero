@@ -1,1 +1,0 @@
-# PrimeraAppReactNative_Benezra_Cordero
